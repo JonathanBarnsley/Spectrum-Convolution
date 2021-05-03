@@ -1,1 +1,0 @@
-Colour Analysis of Polyenes
